@@ -1,2 +1,2 @@
 # hello-world
-i love ☕
+i love :☕;, :pizza:, and :dancing:. 
